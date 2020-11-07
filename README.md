@@ -1,5 +1,6 @@
 ### Hi there 👋
-
+### I work with my boyfriend @liamobr-art on MilkBot and other stuff
+### How to reach me: DM @Chloe XX#2817 on discord 
 <!--
 **ChloeXX-AUS/ChloeXX-AUS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
